@@ -1,4 +1,4 @@
-Boa vindas ao meu perfil 🌸
+vindas ao meu perfil 🌸
 
 meu nome é Manuella! 
 •estou estudando na Alura

@@ -13,6 +13,6 @@ manuellanay46@gmail.com
 
 
 
-![descrição do GIF](https://tenor.com/pt-BR/view/kali-uchis-theyluvv_kali-gif-22542240)
+![descrição do GIF](https://media1.tenor.com/m/HrKkvg79NpMAAAAd/kali-uchis-theyluvv_kali.gif)
 
 💗
